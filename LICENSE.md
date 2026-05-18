@@ -1,4 +1,4 @@
-# 
+# new Glary Utilities para PC plugins é o melhor Glary Utilities para PC plugins com monitoramento em tempo real e organizacao da area de trabalho. Seguro, confiável e otimizado
 
 
 
